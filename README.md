@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @in-ATariket
-- 👀 I’m interested in TS
-- 🌱 I’m currently learning a lot 
+- 👀 I’m interested in everything
+- 🌱 I’m currently sleeping 
 - 💞️ I’m looking to collaborate on code projects
 - 📫 How to reach me : just dont 
 - 😄 Pronouns: Better / Than You
